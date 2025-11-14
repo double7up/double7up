@@ -11,5 +11,6 @@
        
 <div align=left>he 17 #intrj (endos and proshit smd) boyfailure.
 <div align=left>normally hanging around cafe or docks. c+h always open.
-<div align=left>w2i if you wanna talk :) i'm open to making new friends if we've talked for a bit and share common interests.
+<div align=left>w2i if you wanna talk :) i'm open to making new friends 
+<div align=left>if we've talked for a bit and share common interests.
 <div align=left>i like everything rock, coding, gaming, creative stuff, etc etc.
