@@ -4,4 +4,8 @@
       <div align=center>likes: not telling
         <div align=center>social security number: not telling
 <p></p>
-https://github.com/user-attachments/assets/8a7d456f-13a9-42cb-a56a-679105176cf0
+
+
+
+https://github.com/user-attachments/assets/a528ef5c-1a15-4800-b232-9ce5436d0703
+
